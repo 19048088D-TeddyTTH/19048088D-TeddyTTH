@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @19048088D-TeddyTTH
+- 👀 I’m interested in hiking
+- 🌱 I’m currently learning aviation related technical skills and knowlegde
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: plz email via 19048088d@connect.polyu.hk
